@@ -1,2 +1,0 @@
-PiedraPapelYTijeras$PiedraPapelYTijeras
-PiedraPapelYTijeras
